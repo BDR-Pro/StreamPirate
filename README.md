@@ -43,6 +43,8 @@ Happy Streaming, and may the winds be ever in your favor! 🌬️🖤
 
 ![alt text](example.gif)
 
+![alt text](piracy.jpg)
+
 ---
 
 *Note: This guide is for educational and entertainment purposes only. Always respect copyright laws and consume content legally.*
